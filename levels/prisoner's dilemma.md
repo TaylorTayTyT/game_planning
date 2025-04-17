@@ -1,0 +1,1 @@
+players have to agree on who to save, but on one level, can qucikly swap people without the other person knowing.
